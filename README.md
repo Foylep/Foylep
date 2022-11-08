@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Foylep
+- 👀 I’m helping around with some minor projects
+- 🌱 I’m one of former LOL cup organisers
+- 💞️ I’m looking to collaborate on some smaller projects, where I can share my ideas amd help around
+- 📫 How to reach me: Twitter: @Real_Foylep
